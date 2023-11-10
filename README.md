@@ -21,5 +21,7 @@ Outside of school, I play water polo and enjoy working with technology, especial
 In addition, I do a lot with and around media, I like to film and photograph; also at larger events or sporting events.
 
 If you have any questions or just want to write, feel free to write me...
+
 ...via Discord: @n1klas5g
+
 ...via Matrix: @niklas:n1klas.network
