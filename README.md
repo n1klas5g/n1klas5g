@@ -15,7 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-I'm Niklas, from the beautiful Ruhr area in North Rhine-Westphalia in Germany and currently attend the 9th grade of a comprehensive school.
+I'm Niklas, from the beautiful Ruhr area in North Rhine-Westphalia in Germany and currently attend the 11th grade of a comprehensive school.
 
 Outside of school, I play water polo and enjoy working with technology, especially servers and programming.
 In addition, I do a lot with and around media, I like to film and photograph; also at larger events or sporting events.
